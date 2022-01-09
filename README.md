@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @VVVBLACKBEARDVVV
-- 👀 I’m interested in ...STEM,Mental Illness,Outdoorsman life,Food.
+- 👀 I’m interested in ...STEM,Mental Illness,Outdoorsman life, Food.
 - 🌱 I’m currently learning ...Filipino cousine 
 - 💞️ I’m looking to collaborate on ...anything relevant to streaming looking really for any stem/cullinary offers.
 - 📫 How to reach me YT:https://youtube.com/channel/UCWct5RVsuohjW7LazX8QZsg.  Twitch: VVV_Blackbeard_VVV 
